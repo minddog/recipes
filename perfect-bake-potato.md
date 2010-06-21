@@ -26,6 +26,7 @@ We all wonder how to pass time after midnight correcting an akward sleep schedul
 
 ### Cremini Mushrooms ###
 I love this one, a friend of mine introduced me to this process.  Its a great bacon subsitute
+
 1. Bake on 350F for 5 minutes or until brown.
 2. Chop the mushrooms up into very fine slices.
 3. Oil a cookie sheet and drop the mushrooms on.

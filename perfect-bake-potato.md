@@ -13,7 +13,7 @@ We all wonder how to pass time after midnight correcting an akward sleep schedul
 * Bacon (Optional)
 
 
-## Steps to a perfect baked potatoe ##
+## Steps to a perfect baked potato ##
 1.  Preheat the oven to 400 Farenheit.
 2.  Poke a few holes with a fork in one large russet potato.
 3.  Roll the potato around in the 1/4 teaspoon of salt

@@ -3,14 +3,14 @@ We all wonder how to pass time after midnight correcting an akward sleep schedul
 
 ## Ingredients ##
 
-Large Russet Potato, organic preferred
-1/4 Teaspoon salt
-1 Sheet of tinfoil
-Margarine or Butter
-Green Onion
-Sour Cream or Sour Supreme
-Cremini Mushrooms (Optional)
-Bacon (Optional)
+* Large Russet Potato, organic preferred
+* 1/4 Teaspoon salt
+* 1 Sheet of tinfoil
+* Margarine or Butter
+* Green Onion
+* Sour Cream or Sour Supreme
+* Cremini Mushrooms (Optional)
+* Bacon (Optional)
 
 
 ## Steps to a perfect baked potatoe ##
